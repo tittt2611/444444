@@ -30,7 +30,7 @@
 
 快把本站收藏起来，获取第一手日本AV免费资源更新信息。无论是经典影片，还是最新上架，每一次访问都能发现惊喜！
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/tittt2611/444444 ）</span>
 
 
 
